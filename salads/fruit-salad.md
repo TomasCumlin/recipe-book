@@ -3,7 +3,7 @@
 
 ## Ingredients
 
-- 2 cups strawberries, shredded
+- 2 cups strawberries, whole
 - 1 cup blueberries
 - 1 cup grapes, halved
 - 1 banana, sliced
